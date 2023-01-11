@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @Sanna0908
-- 👀 I’m interested in coffee
-- 🌱 I’m currently learning about the best coffee in the world
-- 💞️ I’m looking to collaborate on projects about coffee
+- Hi, I’m Sarah
+- I like coffee and video games. And Dogs :3
+- Probably gaming at the moment - busy healing the team
 
-Cofe is special
+Cofe is special <3
